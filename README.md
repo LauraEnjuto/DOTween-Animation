@@ -6,7 +6,7 @@
 
 Want to see it with better quality?
 
-👉 [**Watch the full video on YouTube**](https://img.youtube.com/vi/nPS0jvMFvho/0.jpg)](https://youtu.be/nPS0jvMFvho)
+👉 [**Watch the full video on YouTube**](https://img.youtube.com/vi/nPS0jvMFvho/0.jpg)]
 
 ## 💡 About the Project
 
